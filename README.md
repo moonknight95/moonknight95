@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm currently seeking knowledge about computer things and other cool stuff of this AI <br>I would love to collaborate with you, If you reach out in a techy way......<br>I'm currently learning data science and would like if someone challenge and guide me with it😁<br>Ask me about my  project and my practical knowledge.....<br>😂😂.....sorry for this one but I'm very excited about tech and eager to work.... 
+I'm currently seeking knowledge about computer things and other cool stuff of this AI <br>I would love to collaborate with you, If you reach out in a techy way......<br>I'm currently learning data science and would like if someone challenge and guide me with it😁<br>Ask me about my  project and my practical knowledge.....<br>I'm very excited about tech and eager to work.... 
 
 
 ## 🌐 Socials:
